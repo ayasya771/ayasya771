@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ayasya771
+- 👀 I’m interested in ... check out my profile
+- 🌱 I’m currently learning ...  Ai/Ml
+- 📫 How to reach me ... https://ayasyabatta.me
