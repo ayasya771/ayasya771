@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ayasya771
 - 
-- 👀 To get to know me  -->  check out my profile
+- 👀 To get to know me  -->  check out my profile ( https://ai.ayasyabatta.live )
 - 
 - 🌱 I’m currently learning ...  Ai/Ml
 - 
-- 📫 How to reach me ... https://ai.ayasyabatta.live
+- 📫 How to reach me ...
