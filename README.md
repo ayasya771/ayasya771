@@ -4,4 +4,4 @@
 - 
 - 🌱 I’m currently learning ...  Ai/Ml
 - 
-- 📫 How to reach me ... https://ayasyabatta.me
+- 📫 How to reach me ... https://ai.ayasyabatta.live
