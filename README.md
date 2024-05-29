@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ayasya771
 - 
-- 👀 To get to know me  -->  check out my portfolio ( https://ai.ayasyabatta.live )
+- 👀 To get to know me  -->  check out my portfolio ( https://ayasya771.github.io/my-portfolio )
 - 
 - 🌱 I’m currently learning ...  Ai/Ml
 - 
