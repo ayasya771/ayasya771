@@ -1,9 +1,6 @@
 - 👋 Hi, I’m @ayasya771
 - 
-- 👀 To get to know me  -->  check out my portfolio ( https://ayasya771.github.io/my-portfolio )
+- 👀 To get to know me  -->  check out my portfolio (www.ayasyabatta.com)
 - 
 - 🌱 I’m currently learning ...  Ai/Ml
-- 
-- 📫 How to reach me ... Email for urgencies or important work ( find it on my portfolio )
 -
-- 😎 Link to my resume --> ( https://tinyurl.com/3x6tw782 )
